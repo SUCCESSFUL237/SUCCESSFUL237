@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SUCCESSFUL237
+- 👀 I’m interested in ... ( software development )
+- 🌱 I’m currently learning ... ( Coding ) 
+- 💞️ I’m looking to collaborate on ... ( Projection ) 
+- 📫 How to reach me ...(+2379035235234)
+- i Enjoy ( Meeting new people )
